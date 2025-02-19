@@ -65,5 +65,5 @@ Gustavo xpkjcVhpwcj456
 
 ## Autor
 
-Desenvolvido por \*\*Gustavo, Gleciane, Beatriz, Bruno e Fernand \*\*
+Desenvolvido por \*\*Gustavo, Gleciane, Beatriz, Bruno e Fernando \*\*
 
